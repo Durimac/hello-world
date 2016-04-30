@@ -6,3 +6,5 @@ Right now I have 19 years old and I'm studying Telecommunication engineering. Bu
 doing all things in the wrong way.
 So... I'm here to TRY!
 
+
+This is getting exiting. I hope I use it someday when I have found a job.
